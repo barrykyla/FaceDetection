@@ -5,3 +5,5 @@ My masks background is the webcam becasue it is something that Not many can hide
 posses. I hoped this project put in persepctive the actual "privacy" we have, and created this project as a metaphore for our lives 
 today.
 
+My original inspiration was based off of a mask from the small country of Burkino Faso, and was used in religious ceremonies. 
+I felt as though I could go deeper so had done research on other masks of the area. I also chose the colors based off of the Bejing Opera masks. I did this in order to include some of my own culture as well. 
